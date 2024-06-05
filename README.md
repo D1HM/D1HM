@@ -8,7 +8,7 @@
 - I’m looking to
 - Spread knowledge & and help others
 - 📫 How to reach me
-- a.alhidari@outlook.com
+- a.alhaidari1@outlook.com
 
 <!---
 D1HM/D1HM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
